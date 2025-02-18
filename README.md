@@ -7,7 +7,7 @@
 ## About Me
 
 Hello! 👋 I'm EcoG-One.
-After many may years engaged to Software Development, we finally are getting officially married! 
+After many many years engaged to Software Development, we finally are getting officially married! 
 (Better late than never...lol).
 
 Here's a little more about me:
